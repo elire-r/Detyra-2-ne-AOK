@@ -1,0 +1,1 @@
+# Detyra-2-ne-AOK
